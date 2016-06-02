@@ -1,10 +1,16 @@
 # Expert-Fame-Review-
-<br>You want to get a lot of money when doing affiliate marketing but don’t know where and how to start? Let Expert Fame Review help you.<br/>
-CLICK here now! THE SHORTCUT TO SUCCESS IN AFFILIATE MARKETING  
+<br>You want to get a lot of money when doing affiliate marketing but don’t know where and how to start? Let Expert Fame Review help you.
+CLICK here now!<br/> THE SHORTCUT TO SUCCESS IN AFFILIATE MARKETING  
 <br>http://expert-famereviews.com/<br/>
 How well known on the internet?
- <br>How can I win the other affiliate and become a professional affiliate marketer?
+ <br>How can I win the other affiliate and become a professional affiliate marketer?<br/>
 How you can sell more and more popular on the niche that you choose.
+<br>How to be famous on the internet.<br/>
+How to become expert famous and sell more.
+<br>How to create and sell more products.<br/>
+How to sell tons more of your own products.
+<br>These topics are arranged from easy to difficult level for students in order to acquire knowledge easily. In the next section, I will show you the contents of each topic.<br/>
+
 Read more :
 <br>https://www.youtube.com/watch?v=sZ0fT0CEV9E<br/>
 https://expertfamereviews.wordpress.com/2016/05/27/first-blog-post/
